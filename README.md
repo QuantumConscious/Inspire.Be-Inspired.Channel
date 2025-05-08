@@ -5,3 +5,5 @@
 # Home:
 https://www.youtube.com/@BeInspiredChannel
 https://www.youtube.com/@BeInspiredStudio
+https://www.facebook.com/beinspiredchannel
+https://beinspiredchannel.com/
